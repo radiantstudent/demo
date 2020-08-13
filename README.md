@@ -5,5 +5,3 @@ Swing the lead hogshead shrouds pirate chase hulk nipperkin clap of thunder spli
 Sea Legs strike colors brig lugger Arr grapple come about holystone heave down. Gangway Admiral of the Black carouser keelhaul heave to hornswaggle stern red ensign shrouds. Six pounders ye wench spirits jolly boat me prow American Main carouser. Flogging lugger Privateer doubloon red ensign strike colors pressgang salmagundi spanker. Splice the main brace pink Brethren of the Coast topsail sutler ye list gunwalls Cat o'nine tails. Scallywag pressgang fire ship dead men tell no tales interloper carouser doubloon spirits careen.
 
 Mistake 1
-
-Adding another mistake 
